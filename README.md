@@ -1,1 +1,1 @@
-# SI_2023_lab2_183287
+Konstantin Ustijanoski 183287
